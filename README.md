@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @senalie21
-- 👀 I’m interested in badmintn
-- 🌱 I’m currently learning bio tech 
+- 👀 I’m interested in badminton
+- 🌱 I’m currently learning bio technology 
